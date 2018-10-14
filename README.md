@@ -12,3 +12,4 @@ I used sprites from zion v8 and d4d
 Both of them are great mods check them oout on moddb. the doom eternal sprites and pickup sprites are made by me. 
 
 thanks for playing
+(disclaimer, i do not own the rights for doom or anything else ,this is a non comercial fan made mod)
